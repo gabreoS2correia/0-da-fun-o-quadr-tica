@@ -1,0 +1,1 @@
+# 0-da-fun-o-quadr-tica
